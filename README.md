@@ -1,0 +1,1 @@
+# AulaDePadr-esDeProjetos01-10-2025
